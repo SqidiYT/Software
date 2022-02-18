@@ -8,3 +8,4 @@ Cześć jestem @SqidiYT
 - Posiadam także swój serwer minecraft:
  - sqidimc.mcalias.com
 Dzięki za przeczytanie :)
+PS: Mam też kanał na youtube: https://www.youtube.com/channel/UCt9sJuJDRFUbTKI6TL9HHVQ
